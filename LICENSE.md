@@ -1,4 +1,4 @@
-
+Free smrt Scripts for hooked - auto-win and inf-hooks brings you the best free scripts for hooked, featuring auto-win and inf-hooks. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
